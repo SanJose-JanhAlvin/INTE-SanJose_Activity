@@ -1,1 +1,0 @@
-# INTE-SanJose_Activity
